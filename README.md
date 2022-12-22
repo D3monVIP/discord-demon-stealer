@@ -1,3 +1,4 @@
+# NEW STEALER , AND BEST FUD ( FULLY UNDETECTABLE ) + THE INSTALLATION PY FILE HAS 0/64 ON virustotal.com
 
 >This ia an simple and powerful stealer that steals victim credentials and send to your discord server... 
 
